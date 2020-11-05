@@ -9,4 +9,4 @@ I am just a random person in this big world
 - 💬 Ask me about Anything
 - 📫 How to reach me: Bali
 - 😄 Pronouns: ...
-- ⚡ Fun fact: "Im a boy "
+- ⚡ Fun fact: "I'am a boy "
