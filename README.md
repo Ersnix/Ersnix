@@ -7,6 +7,6 @@ I am just a random person in this big world
 - 👯 I’m looking to collaborate on ---
 - 🤔 I’m looking for help with ---
 - 💬 Ask me about Anything
-- 📫 How to reach me: Bali
+- 📫 How to reach me: tuadi0123@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: "I'am a boy "
