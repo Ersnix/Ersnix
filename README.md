@@ -1,5 +1,5 @@
 ### Hi there | 👋👋👋👋
-Im just a random people in this big world
+I am just a random person in this big world
 
 ### BIO:
 - 🔭 I’m currently working on --
